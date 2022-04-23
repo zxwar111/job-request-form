@@ -4,3 +4,4 @@ if you have any issues with any members or software
 please contact owner of Discord Channel
 and please do not be disrespectful that is all
 Discord Channel:https://discord.gg/BC2YYTtp8a
+https://github.com/zxwar111/job-request-form/discussions
